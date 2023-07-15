@@ -1,6 +1,6 @@
 
 
-✨ Previous profile @ErinClark ✨
+✨ Previous profile [ErinClark](https://github.com/erinclark/) ✨
 
 
 
