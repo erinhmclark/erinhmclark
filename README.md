@@ -1,6 +1,6 @@
 
 
-✨ Previous profile [ErinClark](https://github.com/erinclark/) ✨
+✨ I'm not really that new [ErinClark](https://github.com/erinclark/) ✨
 
 
 
